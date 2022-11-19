@@ -1,0 +1,1 @@
+# huawei-p30-lite-root
